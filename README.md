@@ -1,3 +1,1 @@
-# 162395-E02
-Michał Jakubowski
-godzina 11:30
+14.02.2022, 11-30, Michał Jakubowski 162395 11:30-13:00
